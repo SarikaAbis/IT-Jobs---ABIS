@@ -8,3 +8,4 @@ Required Skills
 4 yrs minimum
 Remote opportunity
 PST time zone 
+Interested can share resume to sarika@akshayaitsolutions.com 
